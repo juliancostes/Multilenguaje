@@ -1,1 +1,1 @@
-Seleccionar idioma: Español, ingles o Aleman
+Seleccionar idioma: Español, Ingles o Aleman
